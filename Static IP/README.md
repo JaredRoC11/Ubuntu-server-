@@ -9,12 +9,11 @@
 ![image](https://github.com/JaredRoC11/Ubuntu-server-/assets/106403018/5796dcf6-df44-4a17-8de9-1874ddf9761c)
 
 
-![image](https://github.com/JaredRoC11/Ubuntu-server-/assets/106403018/aae424f8-c944-4619-9835-1e9a87fbaa30)
+![image](https://github.com/JaredRoC11/Ubuntu-server-/assets/106403018/d41e5cff-71c8-48f2-9e62-02438ddfa3fa)
 
 
-![image](https://github.com/JaredRoC11/Ubuntu-server-/assets/106403018/b64d66c8-d7ff-4e9b-91eb-3f1791c1e395)
 
+![image](https://github.com/JaredRoC11/Ubuntu-server-/assets/106403018/eb4749d5-4260-47bf-9a27-25b51ab94262)
 
-![image](https://github.com/JaredRoC11/Ubuntu-server-/assets/106403018/bd2bc4dc-fcee-40d3-803e-4b4655132517)
 
 
